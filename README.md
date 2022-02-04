@@ -1,17 +1,19 @@
 # Writing-Assignment
-The importance of doing your own work.
-Copying others is a silly idea.
-I think you are most likely to forget what you copied than what you did yourself.
-When you get feedback from the work that you did, you will be able to make sense of where you went wrong and that will help you avoid the same mistakes next time.
-Beside the fact that it is morally wrong to copy another person's work, it is basically cheating yourself because you are portraying a false impression of understanding a certain thing when you don't.
-In a case where you are caught, you might face serious desciplinary hearing or dismissal and that might ruin your integrity.
 
-Why taking time to understand concepts is a good thing.
+My future: good parts
 
-Learning begins with understanding basic concepts, that way you are able to advance your knowledge as you go.
-Understanding concepts will come in handy when you are by yourself, for example in an examination where there is no way you can ask for help.
-There is nothing wrong with not understanding and asking for clarification, or else we wouldn't need teachers and instructors.
-Rather, use available resources to help you understand than to cheat.
+The life that I desire is one where I have a comfortable life, be able to afford basic needs such as a house of my own, a beautiful car and be able to travel. I
+travel. I wish to go to a more technologically advanced country like India, Japan and * for three to five years in future to study and improve my skills. On
+skills. On a personal aspect of things, I would like to just be a great help to my parents and show them how grateful I am to have them. Even them eventhem,
+eventhem, even them. Even though it's every year's resolution, I wish to adopt a healthier lifestyle. The effect that it would have on my community and family. Coming from a place where success stories are very few, my success would be inspirational to my siblings and my community members.
+I wish to prove that it is not possible for all of us to be Medical Doctors and Accountants, but we can still have a fulfilling life filled with so many opportunities.
+
+
+Even though a career in tech is popular in some parts of the country, where I come from it sounds far-fetched because of the lack of gadgets such as computers. Most of us get to use a computer for the first time in tertiary institutions.
+That is where I come in. I wish to close that gap, that would be my way of giving back to my community members. Having a center where community members can be able to learn at least the basics of a computer and how to navigate it would be beneficial. That way they will be able to do basic things such as to type a CV, to search for job opportunities and to apply to tertiary institutions.
+It is very important that I succeed because I know that there is a whole clan of people that would benefit from that; it would also just be fulfilling and give me purpose in life.
+
+
 
 
 
