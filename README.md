@@ -4,7 +4,7 @@
 What attracts me to web development and why I applied for it specifically :
 
 There is a big market for web developers in South Africa and globally. Given that the unemployment rate in our country is very high, it is a career in which I will have great
-chance of not struggling to secure a job.
+chance of securing a job.
 It is a sustainable career; new technologies are introduced everyday and every industry / department needs or could benefit from web development. I can be in this field for as much I wish.
 There are various specialisations to pick from, I can be a game developer, web content manager and develop applications, for example, so I have the required knowledge and skills.
 I can also be a freelancer and be my own boss.
