@@ -1,10 +1,20 @@
 # Writing-Assignment
+The importance of doing your own work.
+Copying others is a silly idea.
+I think you are most likely to forget what you copied than what you did yourself.
+When you get feedback from the work that you did, you will be able to make sense of where you went wrong and that will help you avoid the same mistakes next time.
+Beside the fact that it is morally wrong to copy another person's work, it is basically cheating yourself because you are portraying a false impression of understanding a certain thing when you don't.
+In a case where you are caught, you might face serious desciplinary hearing or dismissal and that might ruin your integrity.
 
-My free time
+Why taking time to understand concepts is a good thing.
 
-My Mother runs a Day-Care Centre, in my free time I go help them out. My duties include helping the kids learn how to write, from the basics of learning how to hold a pencil, and that's what I enjoy the most.
-I also do their
-administration work. When I am home I love cooking and baking. I haven't been watching too much TV lately, I enjoy listening to podcasts and the radio. Going forward I'll be using my free time to practice what I have learned during the bootcamp and improve my skills.
+Learning begins with understanding basic concepts, that way you are able to advance your knowledge as you go.
+Understanding concepts will come in handy when you are by yourself, for example in an examination where there is no way you can ask for help.
+There is nothing wrong with not understanding and asking for clarification, or else we wouldn't need teachers and instructors.
+Rather, use available resources to help you understand than to cheat.
+
+
+
 
 
 
