@@ -1,4 +1,15 @@
-# Writing-Assignment
-1.My History
 
-I was born in Tembisa and I am the first born out of four children. I grew up very reserved, I enjoyed being indoors. When I was 12 years old, we moved to Limpopo where my parents are both originally from. The move took a huge toll on me, even though it was for a good course. My paternal grandfather was ill and my Mother had to go look after him. My little brother and I moved as well. Moving to a new school, in a different province, in the middle of the year was never ideal but there was no other way. I left the life I used to know, and the joy of having both my parents under the same roof over night. Life became different and I wasn't happy for the most part. Over the years I have come to appreciate all the things that I learned about my people and our culture. Even though opportunities are scarce, rural areas are peaceful and rural people are more humane. We all know each other and somehow we are all related to one another. That emergency move became a permanent one by the way and we are happy.
+
+Copying others is a silly Idea. 
+I think you are most likely to forget what you copied than what you did yourself. 
+When you get feedback from the work that you did, you will be able to make sense of where you went wrong and that would help you avoid the same mistakes next time.
+Beside the fact that it is morally wrong to copy another person's work, it is basically cheating yourself because you are portraying a false impression of understanding a certain thing when you don't. 
+In a case where you are caught, you might face serious desciplinary hearing or dismissal and that might ruin your integrity.
+
+Why taking time to understand concepts is a good thing;
+
+Learning begin with understanding basic concepts, that way you are able to advance your knowledge as you go. 
+Understanding concepts will come in handy when you are by yourself for example in an examination where there is no way you can ask for help. 
+There is nothing wrong with not understanding and asking for clarification or else we wouldn't need teachers and instructors.
+Rather use available resources to help you understand than to cheat.
+
