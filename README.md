@@ -1,4 +1,3 @@
 # Writing-Assignment
-1.My History
+2. Why this career
 
-I was born in Tembisa and I am the first born out of four children. I grew up very reserved, I enjoyed being indoors. When I was 12 years old, we moved to Limpopo where my parents are both originally from. The move took a huge toll on me, even though it was for a good course. My paternal grandfather was ill and my Mother had to go look after him. My little brother and I moved as well. Moving to a new school, in a different province, in the middle of the year was never ideal but there was no other way. I left the life I used to know, and the joy of having both my parents under the same roof over night. Life became different and I wasn't happy for the most part. Over the years I have come to appreciate all the things that I learned about my people and our culture. Even though opportunities are scarce, rural areas are peaceful and rural people are more humane. We all know each other and somehow we are all related to one another. That emergency move became a permanent one by the way and we are happy.
