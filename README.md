@@ -1,10 +1,1 @@
-# Writing-Assignment
-
-My free time
-
-My Mother runs a Day-Care Centre, in my free time I go help them out. My duties include helping the kids learn how to write, from the basics of learning how to hold a pencil, and that's what I enjoy the most.
-I also do their
-administration work. When I am home I love cooking and baking. I haven't been watching too much TV lately, I enjoy listening to podcasts and the radio. Going forward I'll be using my free time to practice what I have learned during the bootcamp and improve my skills.
-
-
-
+I honestly cannot think of anything that would stand in my way. In actual fact I won't let anything stop from achieve everything I wish for and more. I'm very motivated and very hopeful since the year started very well for me.
